@@ -6,6 +6,6 @@
 - 📫 **How to reach me:** **Discord:** @rd.mp4. **Tiktok:** @rd.ini
 - 😄 **Pronouns:** strictly **HE/HIM**
 - ⚡ **Fun fact:** i forgor
-- 🌐 **My website:** https://rd_github31.github.io
+- 🌐 **My website:** https://rd-github31.github.io
 - 🌐 **My guns.lol page:** https://guns.lol/rd_idk
 
