@@ -1,7 +1,7 @@
 - 👋 Hi, I’m **@RD-github31**
 -
-- 👀 I’m interested in tech and games
-- 🌱 I’m currently learning HTML and CSS
+- 👀 I’m interested in **tech** and **games**
+- 🌱 I’m currently learning **HTML** and **CSS**
 -
 - 📫 **How to reach me:** **Discord:** @rd.mp4. **Tiktok:** @rd.ini
 - 😄 **Pronouns:** strictly **HE/HIM**
