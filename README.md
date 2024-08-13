@@ -3,7 +3,7 @@
 - 👀 I’m interested in **tech** and **games**
 - 🌱 I’m currently learning **HTML** and **CSS**
 -
-- 📫 **How to reach me:** **Discord:** @rd.mp4. **Tiktok:** @rd.ini
+- 📫 **How to reach me:** **Discord:** @rd.apk **Tiktok:** @rd.ini
 - 😄 **Pronouns:** strictly **HE/HIM**
 - ⚡ **Fun fact:** i forgor
 - 🌐 **My website:** https://rd-github31.github.io
