@@ -1,11 +1,11 @@
-- 👋 Hi, I’m **@RD-github31**
+- 👋 Hi, I’m **RD**
 -
-- 👀 I’m interested in **tech** and **games**
+- 👀 I’m interested in **Tech, Graphic design, Rhythm games, Editing**
 - 🌱 I’m currently learning **HTML** and **CSS**
 -
-- 📫 **How to reach me:** **Discord:** @rd.apk **Tiktok:** @rd.ini
-- 😄 **Pronouns:** strictly **HE/HIM**
+- 📫 **How to reach me:** **Discord:** @rd.apk **Tiktok:** @rd.apk
+- 😄 **Pronouns:** **he/him**
 - ⚡ **Fun fact:** i forgor
-- 🌐 **My website:** https://rd-github31.github.io
-- 🌐 **My guns.lol page:** https://guns.lol/rd_idk
+- 🌐 **My website:** https://rd-idk.github.io
+- 🌐 **My guns.lol page:** https://guns.lol/rd.apk
 
