@@ -7,5 +7,5 @@
 - 😄 **Pronouns:** **he/him**
 - ⚡ **Fun fact:** i forgor
 - 🌐 **My website:** https://rd-idk.github.io
-- 🌐 **My guns.lol page:** https://guns.lol/rd.apk
+- 🌐 **My guns.lol page:** https://guns.lol/SomethingRD
 
